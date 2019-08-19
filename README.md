@@ -1,16 +1,15 @@
 
-导 航 永 久 域 名 :http://69chengren.info/
+# 69成人网 最新地址发布 
 
-⭐️ 👉 备用  导航 ：http://69zhongzhuan.xyz/
+## 导 航 永 久 域 名Http://69chengren.info/
 
-69成人福利视频 最新地址发布  地址一：  http://69chengren.me/       地址二：   http://69crav.xyz/
+## ⭐️ 👉 访问地址① ：Http://69chengren.me
 
-                             
+## ⭐️ 👉 访问地址② ：Http://69crav.xyz
 
-‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
+## ⭐️ 👉 备用导航 ：Http://69zhongzhuan.xyz
 
-‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
-
-Telegram频道：         ，欢迎关注！
-谨记永久发布页哦！
-
+## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
+## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
+### 📧 邮箱联系方式: 69chengrendh@gmail.com （发送任意内容获取最新地址）
+### 谨记永久发布页哦，二师兄都记住了呢！Http://69chengren.info
